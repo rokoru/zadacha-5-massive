@@ -1,0 +1,1 @@
+# zadacha-5-massive
